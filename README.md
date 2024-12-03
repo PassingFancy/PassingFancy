@@ -1,4 +1,4 @@
-## Hi there 👋
+## If I'm not in front of the computer, you can find me deep in the woods poking mushrooms and catching frogs. 
 
 <!--
 **PassingFancy/PassingFancy** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
